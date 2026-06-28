@@ -1,4 +1,4 @@
-# 
+# Elite TreeSize templates for Mac OS | Free TreeSize templates for PC Windows. Featuring hotkey support and cooling optimization — optimized for maximum performance on every platform.
 
 
 
